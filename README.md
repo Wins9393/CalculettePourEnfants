@@ -1,1 +1,1 @@
-Projets Calculette pour enfants, amusez-vous !
+Projet Calculette pour enfants, amusez-vous !
